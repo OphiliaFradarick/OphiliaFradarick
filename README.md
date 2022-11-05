@@ -1,4 +1,5 @@
 ### Hi there 👋, I'm Ophilia 
+![image](https://user-images.githubusercontent.com/76613993/200096954-7baca872-cfe0-408e-9135-8d0dad4f4b59.png)
 
 
 - 🔭 I’m currently working as a Coding Instructor
