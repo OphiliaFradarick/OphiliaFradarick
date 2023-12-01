@@ -2,4 +2,4 @@
 
 - 👯 PG Data Analytics Student Actively Seeking Winter 2024 Internship in Data Analysis || Jr Python Full Stack Developer
 - 📫 How to reach me: ophiliafrederick@gmail.com
-- ⚡ Fun fact: I miss my 5-6 hours of sleep :/
+- ⚡ Fun fact: My name is derived from William Shakespeare's famous play "Hamlet". The name Ophilia carries the beautiful meaning of 'LOVE.'  
